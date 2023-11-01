@@ -44,7 +44,7 @@ Ready to enhance your business with our secure Software as a Service solutions? 
 
 - **Website:** [www.encryptfirm.com](https://www.encryptfirm.com)
   
-- **Email:** contact@encryptfirm.com
+- **Email:** firm.encrypt@gmail.com
   
 - **Phone:** +254 (711) 776-266
   
